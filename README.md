@@ -41,4 +41,16 @@ See this inscription of the colosseum. Here's an interpretation of what these le
 
 ![](colosseum-inscription.jpg)
 
+* **VIVS**
+
+# V
+Authority goes from a head down towards the feet. And reports back up but a head of lower authority.
+
+# I
+
+Consider multiple heads then talk down to feet, consider many feet.
+
+# S
+
+From a head, turn around above the head towards above and back down towards the feet turning around a different head. Turn around feet and finish facing bottom half authority to the left. 
 
