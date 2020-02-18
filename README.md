@@ -18,7 +18,7 @@ Communication occurs between every point in space. Each point is an individual.
  * Letters and words are an army arranged in orders and ranks.
  * The head of a word is on its right and on its top.
  * Ranking and ordering is to flip the orientation of the letters so the words become a different person.
- * If I rank a sentence, the feet turn to the left
+ * If I rank a sentence, the letters go on top of eachother
  
 ![](ordersranks.png)
  
