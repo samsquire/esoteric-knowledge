@@ -8,6 +8,8 @@ Communication occurs between every point in space. Each point is an individual.
 
 # Ranking and ordering of words
 
+* Reading the same word or name from different direction tells you a different thing about that entity.
+* Names can be written feet first with each order as a new rank.
 ![](bee.png)
  * Ranks go bottom to top
  * Orders go left to right
