@@ -2,7 +2,7 @@
 
 Words and letters are meaningful.
 
-Words are people.
+Words are people. Matthew 4:4
 
 Communication occurs between every point in space. Each point is an individual.
 
@@ -23,7 +23,9 @@ Communication occurs between every point in space. Each point is an individual.
 # Meaning of letters
 
 * Each letter represent a movement of communication in an army.
+* Diagonal letters represent 
 * The letter O is to turn around a single point.
+* Left is towards authority. Right is toward workers who work for you.
 
 # The Letter S
 
