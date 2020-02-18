@@ -4,9 +4,9 @@ Words and letters are meaningful.
 
 Words are people.
 
-Communication is between every thing in the universe.
+Communication occurs between every point in space. Each point is an individual.
 
-# Ranking and ordering
+# Ranking and ordering of words
 
 ![](bee.png)
  * Ranks go bottom to top
@@ -25,6 +25,11 @@ Communication is between every thing in the universe.
 * Each letter represent a movement of communication in an army.
 * The letter O is to turn around a single point.
 
+# The Letter S
+
+The letter S has 9 points of association.
+
+!()[s.png]
 
 
 
