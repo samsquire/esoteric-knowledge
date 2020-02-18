@@ -4,7 +4,7 @@ Words and letters are meaningful.
 
 Words are people. Matthew 4:4
 
-Communication occurs between every point in space. Each point is an individual.
+Communication of our spirits occur between every point in space. Each point is an individual.
 
 # Ranking and ordering of words
 
