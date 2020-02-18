@@ -29,7 +29,7 @@ Communication occurs between every point in space. Each point is an individual.
 
 The letter S has 9 points of association.
 
-!()[s.png]
+![](s.png)
 
 
 
