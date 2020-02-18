@@ -17,15 +17,16 @@ Communication occurs between every point in space. Each point is an individual.
  * The feet of a name is the left hand side of each word
  * Letters and words are an army arranged in orders and ranks.
  * The head of a word is on its right and on its top.
- * Ranking and ordering is to flip the orientation of the letters so the words become a different person.
+ * Ranking and ordering is to flip the orientation of the letters so the words become a different facet of the same person.
  * If I rank a sentence, the letters go on top of eachother
  
 ![](ordersranks.png)
  
 # Meaning of letters
 
-* Each letter represent a movement of communication in an army.
-* Diagonal letters represent 
+* Each letter represents a movement of communication in an army.
+* The strokes of letters can represent an action or communication.
+* Diagonal parts of letters represent going between individuals in different ranks.
 * The letter O is to turn around a single point.
 * Left is towards authority. Right is toward workers who work for you.
 
@@ -53,4 +54,16 @@ Consider multiple heads then talk down to feet, consider many feet.
 # S
 
 From a head, turn around above the head towards above and back down towards the feet turning around a different head. Turn around feet and finish facing bottom half authority to the left. 
+
+# O
+
+Turn around a single point in the middle, all the way round.
+
+# L
+
+Head talk to feet and to those directly responsible (See Learn)
+
+# V
+
+# P
 
