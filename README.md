@@ -7,12 +7,18 @@ Words are people.
 Communication is between every thing in the universe.
 
 # Ranking and ordering
+
 ![](bee.png)
- * The feet(s) of a word is on the left hand side and at the bottom of the letter.
- * Imagine that the letters and words are an army.
+ * Ranks go bottom to top
+ * Orders go left to right
+ * The feet(s) of a word is on the left hand side.
+ * The feet of a name is the left hand side of each word
+ * Letters and words are an army arranged in orders and ranks.
  * The head of a word is on its right and on its top.
  * Ranking and ordering is to flip the orientation of the letters so the words become a different person.
  * If I rank a sentence, the feet turn to the left
+ 
+![](ordersranks.png)
  
 # Meaning of letters
 
