@@ -57,13 +57,16 @@ From a head, turn around above the head towards above and back down towards the 
 
 # O
 
-Turn around a single point in the middle, all the way round.
+**Decision making** Turn around a single point in the middle, all the way round.
 
 # L
 
-Head talk to feet and to those directly responsible (See Learn)
+**Orders given** Head talk to feet and to those directly responsible (See Learn)
 
 # V
 
+**Report back** Heads tell someone in their feet under their authority and they Report back up between people back to a head of lower authority.
+
 # P
 
+**Action** Communication goes from head to foot and then circles around someone who has lower authority than the original head.
