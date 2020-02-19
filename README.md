@@ -2,7 +2,7 @@
 
 Words and letters are meaningful.
 
-Words are people. Matthew 4:4
+Words and letters are people. Matthew 4:4
 
 Communication of our spirits occur between every point in space. Each point is an individual.
 
