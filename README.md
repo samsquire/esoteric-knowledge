@@ -36,6 +36,10 @@ The letter S has 9 points of association.
 
 ![](s.png)
 
+# The letter r
+
+* Turning around a point
+
 # Colosseum inscription
 
 See this inscription of the colosseum. Here's an interpretation of what these letters mean.
