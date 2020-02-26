@@ -4,15 +4,23 @@ Words and letters are meaningful.
 
 Words and letters are people. Matthew 4:4
 
-Communication of our spirits occur between every point in space. Each point is an individual.
+You have:
+* a mind
+* a heart
+* a soul
+* a spirit
+* a will
+* a breath
+
+Communication of our spirits occur between every point in space. Each point is an individual. A point is comprised of words and has a set of attractors and repulsors.
 
 # Ranking and ordering of words
 
 * Reading the same word or name from different direction tells you a different thing about that entity.
 * Names can be written feet first with each order as a new rank.
 ![](bee.png)
- * Ranks go bottom to top
- * Orders go left to right
+ * Ranks go bottom to top (rows)
+ * Orders go left to right (columns)
  * The feet(s) of a word is on the left hand side.
  * The feet of a name is the left hand side of each word
  * Letters and words are an army arranged in orders and ranks.
@@ -24,6 +32,7 @@ Communication of our spirits occur between every point in space. Each point is a
  
 # Meaning of letters
 
+* The stroke of a letter corresponds to the changing of attention between another point. Your mind has an internal view of other points and words nearby.
 * Each letter represents a movement of communication in an army.
 * The strokes of letters can represent an action or communication.
 * Diagonal parts of letters represent going between individuals in different ranks.
