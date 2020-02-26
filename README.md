@@ -1,5 +1,7 @@
 # esoteric-knowledge
 
+Inspired by Kabbalah and theosophy. This is what I've learned through rumination.
+
 Words and letters are meaningful.
 
 Words and letters are people. Matthew 4:4
