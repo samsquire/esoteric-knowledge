@@ -18,6 +18,8 @@ You have:
 
 Communication of our spirits occur between every point in space. Each point is an individual. A point is comprised of words and has a set of attractors and repulsors.
 
+Your spirit has to align its points so that you are separable from any other formation of points. (See possession)
+
 # Ranking and ordering of words
 
 * Reading the same word or name from different direction tells you a different thing about that entity.
@@ -37,10 +39,11 @@ Communication of our spirits occur between every point in space. Each point is a
  
 # Meaning of letters
 
-* Words and letters have **formations** like soldiers on a battlefield. Points have formations. Since people are constructed from words, they too have a formation of their words. Your body is made up of points which is made up of divisible things such as cells.
+* Words and letters have **hierarchical formations** like soldiers on a battlefield. Points have formations. Since people are constructed from words, they too have a formation of their words. Your body is made up of points which is made up of divisible things such as cells. 
 * The change in direction of strokes of a letter corresponds to:
- ** Changes to where you are looking at your formation of points.
- ** Changes to attention when thinking of a thing.
+  * Changes to where abouts in the formation of points you are looking at
+  * Changes to what points you are looking at
+  * Changes to where on the formation your attention is on
 * A language is a **map** of formations.
 The word bee corresponds to what a bee does and is based on the strokes of the letters. It is one of many infinite representations of what a bee is. When we learn English (as opposed to Hebrew)  
 * Each letter represents a movement of communication in an army.
