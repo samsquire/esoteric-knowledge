@@ -22,7 +22,7 @@ Your spirit has to align its points so that you are separable from any other for
 
 # Ranking and ordering of words
 
-* Reading the same word or name from different direction tells you a different thing about that entity.
+* Reading the same word or name from different direction tells you a different thing about that entity. This is a technique from the Kabbalah and magic word squares.
 * When names are written from left to right, the letters form orders and the words form ranks.
 * Names can be written feet first with each order as a new rank.
 ![](bee.png)
@@ -43,7 +43,7 @@ Your spirit has to align its points so that you are separable from any other for
 * The change in direction of strokes of a letter corresponds to:
   * Changes to where abouts in the formation of points you are looking at
   * Changes to what points you are looking at
-  * Changes to where on the formation your attention is on
+  * Changes to **where** in a formation your **attention** is on (this idea of attention is **critically important** to understand)
 * A language is a **map** of formations.
 The word bee corresponds to what a bee does and is based on the strokes of the letters. It is one of many infinite representations of what a bee is. When we learn English (as opposed to Hebrew)  
 * Each letter represents a movement of communication in an army.
