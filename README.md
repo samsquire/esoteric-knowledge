@@ -11,6 +11,8 @@ You have:
 * a spirit
 * a will
 * a breath
+* a consciousness
+* an attention (palms)
 
 Communication of our spirits occur between every point in space. Each point is an individual. A point is comprised of words and has a set of attractors and repulsors.
 
