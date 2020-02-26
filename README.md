@@ -39,7 +39,8 @@ Your spirit has to align its points so that you are separable from any other for
  
 # Meaning of letters
 
-* Words and letters have **hierarchical formations** like soldiers on a battlefield. Points have formations. Since people are constructed from words, they too have a formation of their words. Your body is made up of points which is made up of divisible things such as cells. 
+* Words and letters have **hierarchical formations** like soldiers on a battlefield. Points have formations. Since people are constructed from words, they too have a formation of their words. Your body is made up of points which is made up of divisible things such as cells.
+* The **Left** has authority over **Right**
 * The change in direction of strokes of a letter corresponds to:
   * Changes to where abouts in the formation of points you are looking at
   * Changes to what points you are looking at
@@ -61,6 +62,16 @@ The letter S has 9 points of association.
 # The letter r
 
 * Turning around a point
+
+# Left and right, North East South West
+
+The cardinal directions are significant and so is left and right. Left and right are significant. Left has authority over the right.
+
+# We are components of minds of other people
+
+# Mocks
+
+Your spirit wins points by winning a mock over another spirit. This is your standing with God. Always walk on the left and appear on the left. Never stand behind another person. Standing behind another person is to accept a mock and to accept a lower station.
 
 # Colosseum inscription
 
