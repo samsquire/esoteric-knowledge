@@ -1,6 +1,6 @@
 # esoteric-knowledge
 
-Inspired by Kabbalah and theosophy. This is what I've learned through rumination. Two opposite statements are true simultaneously.
+Inspired by Kabbalah, theosophy and schizophrenia. This is what I've learned through rumination. Two opposite statements are true simultaneously.
 
 Words and letters are meaningful.
 
@@ -39,13 +39,14 @@ Your spirit has to align its points so that you are separable from any other for
  
 # Meaning of letters
 
-* Words and letters have **hierarchical formations** like soldiers on a battlefield. Points have formations. Since people are constructed from words, they too have a formation of their words. Your body is made up of points which is made up of divisible things such as cells.
+* Words and letters have **hierarchical formations** like soldiers on a battlefield. Points have formations. Since people are constructed from words, they too have a formation of their words. Your body is made up of points which is made up of divisible things such as cells which are words.
 * The **Left** has authority over **Right** **This is really important**
 * The change in direction of strokes of a letter corresponds to:
   * Changes to where abouts in the formation of points you are looking at
   * Changes to what points you are looking at
   * Changes to **where** in a formation your **attention** is on (this idea of attention is **critically important** to understand)
-* A language is a **map** of formations.
+  * Pointing
+* A language is a **map** of bassis for formations.
 The word bee corresponds to what a bee does and is based on the strokes of the letters. It is one of many infinite representations of what a bee is. When we learn English (as opposed to Hebrew)  
 * Each letter represents a movement of communication in an army.
 * The strokes of letters can represent an action or communication.
@@ -68,6 +69,12 @@ The letter S has 9 points of association.
 The cardinal directions are significant and so is left and right. Left and right are significant. Left has authority over the right.
 
 # We are components of minds of other people
+
+Each letter is a person. Each 
+
+# Pointing, looking, facing
+
+Pointing is where you move towards. Facing is what you see. Looking is what you're looking at. Each part of your body has three joints, including your fingers and your whole body. 
 
 # Mocks
 
