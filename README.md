@@ -19,6 +19,7 @@ Communication of our spirits occur between every point in space. Each point is a
 # Ranking and ordering of words
 
 * Reading the same word or name from different direction tells you a different thing about that entity.
+* When names are written from left to right, the letters form orders and the words form ranks.
 * Names can be written feet first with each order as a new rank.
 ![](bee.png)
  * Ranks go bottom to top (rows)
@@ -34,7 +35,12 @@ Communication of our spirits occur between every point in space. Each point is a
  
 # Meaning of letters
 
-* The stroke of a letter corresponds to the changing of attention between another point. Your mind has an internal view of other points and words nearby.
+* Words and letters have **formations** like soldiers on a battlefield. Points have formations. Since people are constructed from words, they too have a formation of their words. Your body is made up of points which is made up of divisible things such as cells.
+* The change in direction of strokes of a letter corresponds to:
+ ** Changes to where you are looking at your formation of points.
+ ** Changes to attention when thinking of a thing.
+* A language is a **map** of formations.
+The word bee corresponds to what a bee does and is based on the strokes of the letters. It is one of many infinite representations of what a bee is. When we learn English (as opposed to Hebrew)  
 * Each letter represents a movement of communication in an army.
 * The strokes of letters can represent an action or communication.
 * Diagonal parts of letters represent going between individuals in different ranks.
