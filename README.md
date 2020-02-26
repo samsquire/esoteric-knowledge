@@ -1,6 +1,6 @@
 # esoteric-knowledge
 
-Inspired by Kabbalah and theosophy. This is what I've learned through rumination.
+Inspired by Kabbalah and theosophy. This is what I've learned through rumination. Two opposite statements are true simultaneously.
 
 Words and letters are meaningful.
 
@@ -40,7 +40,7 @@ Your spirit has to align its points so that you are separable from any other for
 # Meaning of letters
 
 * Words and letters have **hierarchical formations** like soldiers on a battlefield. Points have formations. Since people are constructed from words, they too have a formation of their words. Your body is made up of points which is made up of divisible things such as cells.
-* The **Left** has authority over **Right**
+* The **Left** has authority over **Right** **This is really important**
 * The change in direction of strokes of a letter corresponds to:
   * Changes to where abouts in the formation of points you are looking at
   * Changes to what points you are looking at
