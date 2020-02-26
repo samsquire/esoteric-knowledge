@@ -70,7 +70,7 @@ The cardinal directions are significant and so is left and right. Left and right
 
 # We are components of minds of other people
 
-Each letter is a person. Each 
+Each letter is a new person at a smaller scale. Our cells 
 
 # Pointing, looking, facing
 
