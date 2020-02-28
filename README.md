@@ -43,10 +43,9 @@ Your spirit has to align its points so that you are separable from any other for
 * The **Left** has authority over **Right** **This is really important**
 * The change in direction of strokes of a letter corresponds to:
   * Changes to where abouts in the formation of points you are looking at
-  * Changes to what points you are looking at
   * Changes to **where** in a formation your **attention** is on (this idea of attention is **critically important** to understand)
-  * Pointing
-* A language is a **map** of bassis for formations.
+  * Changes to pointing
+* A language is a **map** of basis for formations.
 The word bee corresponds to what a bee does and is based on the strokes of the letters. It is one of many infinite representations of what a bee is. When we learn English (as opposed to Hebrew)  
 * Each letter represents a movement of communication in an army.
 * The strokes of letters can represent an action or communication.
