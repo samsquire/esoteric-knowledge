@@ -104,7 +104,7 @@ From a head, turn around above the head towards above and back down towards the 
 
 # L
 
-**Orders given** Head talk to feet and to those directly responsible (See Learn)
+**Orders given** Head talk to feet and to those directly responsible for working on the right, lower in authority to feet person (See Learn)
 
 # V
 
