@@ -16,6 +16,8 @@ You have:
 * a consciousness
 * an attention (palms)
 
+Avoid words that begin with con.
+
 Communication of our spirits occur between every point in space. Each point is an individual. A point is comprised of words and has a set of attractors and repulsors.
 
 Your spirit has to align its points so that you are separable from any other formation of points. (See possession)
