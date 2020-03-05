@@ -79,7 +79,7 @@ Pointing is where you move towards. Facing is what you see. Looking is what you'
 
 # Mocks
 
-Your spirit wins points by winning a mock over another spirit. This is your standing with God. Always walk on the left and appear on the left. Never stand behind another person. Standing behind another person is to accept a mock and to accept a lower station.
+Your spirit wins points by winning a mock over another spirit. This is your standing with God. Always walk on the left and appear on the left. Never stand behind another person. Standing behind facing another person is to accept a mock and to accept a lower station.
 
 # Colosseum inscription
 
