@@ -61,7 +61,7 @@ The letter S has 9 points of association.
 
 # The letter r
 
-* Turning around a point
+* r means to go from head to feet, to make a small turning adjustment turning around a point in the middle of a person
 
 # Left and right, North East South West
 
