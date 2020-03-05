@@ -20,6 +20,8 @@ Communication of our spirits occur between every point in space. Each point is a
 
 Your spirit has to align its points so that you are separable from any other formation of points. (See possession)
 
+Even our cells talk. And they have language.
+
 # Ranking and ordering of words
 
 * Reading the same word or name from different direction tells you a different thing about that entity. This is a technique from the Kabbalah and magic word squares.
