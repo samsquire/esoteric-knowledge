@@ -46,7 +46,7 @@ Your spirit has to align its points so that you are separable from any other for
   * Changes to **where** in a formation your **attention** is on (this idea of attention is **critically important** to understand)
   * Changes to pointing
 * A language is a **map** of basis for formations.
-The word bee corresponds to what a bee does and is based on the strokes of the letters. It is one of many infinite representations of what a bee is. When we learn English (as opposed to Hebrew)  
+The word bee corresponds to what a bee does and is based on the strokes of the letters. It is one of many infinite representations of what a bee is. When we learn English (as opposed to Hebrew) we're learning from the English formations. 
 * Each letter represents a movement of communication in an army.
 * The strokes of letters can represent an action or communication.
 * Diagonal parts of letters represent going between individuals in different ranks.
