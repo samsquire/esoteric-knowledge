@@ -4,7 +4,7 @@ Inspired by Kabbalah, theosophy and schizophrenia. This is what I've learned thr
 
 Words and letters are meaningful.
 
-Words and letters are people. Matthew 4:4
+Words and letters are people. Deuteronomy 8:3 Matthew 4:4
 
 You have:
 * a mind
