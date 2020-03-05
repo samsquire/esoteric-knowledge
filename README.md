@@ -75,7 +75,7 @@ Each letter is a new person at a smaller scale. Our cells
 
 # Pointing, looking, facing
 
-Pointing is where you move towards. Facing is what you see. Looking is what you're looking at. Each part of your body has three joints, including your fingers and your whole body. 
+Pointing is where your spirit moves towards. Facing is what is in front of you. Looking is what you're looking at. Each part of your body has three joints, including your fingers and your whole body. Literally turn away from all that is evil
 
 # Mocks
 
